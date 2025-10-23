@@ -3,7 +3,7 @@
 **ABOUT ME**: ⦻
 
 
-🧿 My name is Xinfu, you can call me Xin or Jack :) Nicknames are appreciated! I'm 16, HE/HIM MLM and ej is my fic kin.
+🧿 My name is Xinfu, you can call me Xin or Jack :) Nicknames are appreciated! I'm 16, HE/HIM MLM and ej is my kinsona.
 My personality doesn't match my interests but I'll be more comfortable if we become close.
 
 

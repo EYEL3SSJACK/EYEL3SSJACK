@@ -1,19 +1,36 @@
+
+
+<div align="center">
+  
+![img src=](https://media.tenor.com/nzmnRPOhwugAAAAC/eyeless-jack-creepypasta.gif)
+  
+</d>
+
+<sup>w </sup>
+
 # ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
 **ABOUT ME**: ⦻
 
-<p align="center">
-  <img src="!https://github.com/user-attachments/assets/7e8313cd-4437-49db-beeb-e74eb76f1b0b" />
-</p>
-
-🧿 My name is Xinfu, you can call me Xin or Jack :) Nicknames are appreciated. I'm 16, HE/HIM MLM and ej is my kinsona.
-My personality doesn't match my interests but I'll be more comfortable if we become close.
+🧿 **I am _Xinfu,_ (prnounced as sinfoo) you may call me Xin or EJ.  Nicknames are fine, I'm 16 and i kiss guys (gay). EJ is my highest kinnie and he's my kinsona. I dont trust people easily so it'll take time for me to adjust. I'M mostly AFK and OFFTAB. C*H and W2I is preffered if you wanna talk or have a convo with me, I'm always active at night.**
 
 
-Masky,  EJ, and Liu are my favs, If I ever freak out whenever someone mentions their names, please dont mind me.
+**_MORE ABOUT ME... Masky,  EJ, and Liu are my favs, If I ever freak out whenever someone mentions their names, please dont mind me. I probably have ADHD but I'm not diagnosed yet so :v..._** 
+
+**_I can be dry and nonverbal at sudden times but i'm really fun to talk to if close. I'n also usually alone, c+h and dont hesitate. I'm also with a ben and toby most of the time_**
+
+**_I also like other stuff such as Sally Face, South Park, Alien Stage, Hoyo Games, Alice in Borderland, NANA, etc. There's more, im too lazy to list them down._**
 
 
-🧿 I'M mostly AFK and OFFTAB. C*H and W2I is preffered if you wanna talk or have a convo with me, I'm always active at night :)) 
+<div align="center">
+  
+![img src=](https://media.tenor.com/al91MFdqnGMAAAAM/eyeless-jack.gif)
+  
+</d>
 
+
+<sup>look at ej he's so cute </sup>
+
+**"I was staring face to face with a creature with a black hoodie and a dark blue mask with no nose or mouth staring down at me. The thing that scared me the most was that it had no eyes. Just empty, black sockets. _The creature also had some black substance dripping from its sockets._"**
 
 #XINHATESCODING

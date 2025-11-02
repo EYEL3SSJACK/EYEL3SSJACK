@@ -10,14 +10,11 @@
 
 **ABOUT ME**: ⦻
 
-🧿 **I am _Xinfu,_ (prnounced as sinfoo) you may call me Xin or EJ.  Nicknames are fine, I'm 16 and i kiss guys (gay). EJ is my highest kinnie and he's my kinsona. I dont trust people easily so it'll take time for me to adjust. I'M mostly AFK and OFFTAB. C*H and W2I is preffered if you wanna talk or have a convo with me, I'm always active at night.**
-
-
-**_Shoutout to my goats Toby, Benben, Clocky, Lj, Slendy, and Ben!!!_** 🦇
+🧿 **_Xin , 16+ HE/HIM GAY_**
 
 **_I can be dry and nonverbal at sudden times but i'm really fun to talk to if close. I'n also usually alone, c+h and dont hesitate._**
 
-**_I also like other stuff such as Sally Face, South Park, Alien Stage, Hoyo Games, Alice in Borderland, NANA, etc. There's more, im too lazy to list them down._**
+**_AFK & OFFTB most of the time :( Please IWC!! My mental health is progressing and Ive been in a horrible state lately, IWC as I might lash out or suddenly go moody at you... This is a warning as Ive seen loads of people complain about moody and sensitive people so please iwc but go W2I if you wanna be friends :)_**
 
 
 <div align="center">

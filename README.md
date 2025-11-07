@@ -8,7 +8,10 @@
 
 # ⁺‧₊˚ ཐི⋆⦻⋆ཋྀ ˚₊‧⁺
 
-carrd and strawpage is WIP
+carrd is in WIP
+
+strawpage posted (supposed to be jack nichols but i put an a..)
+
 
 IDLE - Studying
 

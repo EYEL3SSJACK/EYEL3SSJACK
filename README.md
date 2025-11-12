@@ -12,12 +12,11 @@ carrd is in WIP
 
 strawpage posted (supposed to be jack nichols but i put an a..)
 
+IDLE - OFFTAB
 
-IDLE - Studying
+DND - interact with extreme caution, moody 
 
-DND - Offtab or AFK
-
-Online - Free
+Online - INT!
 
 <div align="center">
   
